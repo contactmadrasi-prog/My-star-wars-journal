@@ -1,3 +1,5 @@
+## Chapter 14 - Skeleton Crew
+
 Neal absolutely stole my whole damn heart, such a lovable, adorable kid. I was ready to make a hate post if anything happened to him. **I came into Skeleton Crew with low expectations, but the show caught me off guard in the best way.**
 
 Fern turned out to be my hero. KB was effortlessly cool. And Vix? Cute and surprisingly memorable.

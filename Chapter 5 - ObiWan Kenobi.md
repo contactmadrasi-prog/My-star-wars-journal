@@ -1,3 +1,5 @@
+## Chapter 5 - Obi-Wan Kenobi
+
 Obi-Wan Kenobi was one of those watches where I had all the expectations and came away feeling... conflicted. **Ewan McGregor?** Absolutely perfect casting. The dude is Obi-Wan. You feel it immediately. **He wears those robes like they were made for him, carrying decades of loss, discipline, and quiet fury deep in his eyes. That’s Obi-Wan for me.**
 
 But here’s the rub. The series felt like it was trying too hard to be epic and meaningful, but kept getting bogged down in the discomfort of its own storytelling choices. **The Princess Leia subplot, although charming, felt like a forced fit.** Why on earth was Leia hiding under Obi-Wan’s roof? It stretched the timeline in weird ways and added tension where none was needed. Instead of feeling like I was learning more about Obi-Wan’s world, I was stuck watching a side quest that never really clicked into place.

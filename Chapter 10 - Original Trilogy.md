@@ -1,3 +1,5 @@
+## Chapter 10 - Original Trilogy
+
 Watching the original trilogy last was like stepping into a familiar world with new eyes. **No longer just Luke’s hero journey, it felt like the messy ending to decades of rebellion, political collapse, and sacrifice.**
 
 That moment when **Palpatine** gets thrown down the shaft honestly made me roll my eyes. After all the build-up, it felt too simple, almost rushed. The way his cruelty landed in The Clone Wars, especially with that scene where he throws the cruciatus lightning curse for the first time, made me wish the movies had the same depth. The **animated series showed the real darkness of who he was** much better.

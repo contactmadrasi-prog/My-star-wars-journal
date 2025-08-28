@@ -1,3 +1,5 @@
+## Chapter 8 - Rogue One
+
 Rogue One landed hard. After the slow burn and quiet grit of Andor, **it arrived with rawness.** This movie stripped away everything and showed the personal cost of rebellion unlike anything else in Star Wars.
 
 **The rebellion here is desperate and messy.** People die without glory or fanfare. Their sacrifices come with no medals or praise. Rogue One focuses on those who make every small act of resistance count, knowing it might be the last.

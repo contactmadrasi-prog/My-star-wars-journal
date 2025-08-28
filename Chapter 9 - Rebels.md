@@ -1,3 +1,5 @@
+## Chapter 9 - Rebels
+
 I wasn’t planning on watching Star Wars Rebels. I thought it would be too cheesy or bright compared to Andor’s grit or Rogue One’s weight. I was just ticking another box on my chronological checklist. But oh, how wrong I was.
 
 The ragtag crew of Rebels came out of nowhere and grabbed my heart. They started as misfits thrown together by circumstance but became more a family. Watching them grow into **something real was unexpected and genuine.** It wasn’t about big battles or galactic shifts alone.

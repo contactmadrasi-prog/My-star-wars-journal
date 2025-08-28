@@ -1,4 +1,4 @@
-**Chapter 2.1 - Clone Wars**
+## Chapter 2.1 - Clone Wars
 
 The movies hinted at clones. This series made me watch them bleed.
 

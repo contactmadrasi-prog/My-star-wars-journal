@@ -1,3 +1,5 @@
+## Chapter 13 - Ahsoka
+
 Ahsoka has been my favorite since Clone Wars. The way she trusts Anakin, her gut instincts, her grit it’s always felt real and magnetic.
 
 That said, I didn’t love the Ahsoka series. **The writing felt off, and characters like Hera and Sabine didn’t land for me.** Some of it was jarring enough that I wanted to reach into the screen and **knock some sense into the writing.**

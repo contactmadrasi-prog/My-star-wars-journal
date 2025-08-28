@@ -1,3 +1,5 @@
+## Chapter 4 - The Bad Batch
+
 Omega annoyed me at first. Then she slipped past my defenses the way found family does quietly, stubbornly, and then all at once. She the one voice that refuses to treat survival as the ceiling.
 
 **Kamino’s end said the quiet part out loud.** Usefulness outlasted, leverage exhausted, invoice paid and stamped “irrelevant.” The Empire didn’t negotiate; it audited. The political posture of “surely they still need us” met a cost-cutting spreadsheet and a turbolaser. The Kaminoans thought their leverage would hold beyond the war. It didn’t. **The machine doesn’t barter with suppliers; it replaces you, then erases the blueprint.**

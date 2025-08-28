@@ -1,4 +1,4 @@
-**Chapter 2.2 – Clone Wars**
+## Chapter 2.2 – Clone Wars
 
 **And Ahsoka, oh man.** At first, she grated on me. A child soldier thrown into a war zone, saddled with Anakin like some **cosmic babysitting experiment**. But she grew. She really grew. She became the compass of the entire saga. Every time she questioned the Jedi, I was nodding at the screen. **And when she finally walked away from the Order, it gutted me more than Anakin’s fall ever did.** His story is tragedy written in neon. Hers is quiet, earned, and scathing. **She didn’t betray anyone. The Jedi betrayed her.**
 

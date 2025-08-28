@@ -1,3 +1,5 @@
+## Chapter 15 - Droids
+
 A final shoutout to all the droids. I still remember making pink astromechs move around on a desolate planet in an old **Star Wars game (Droidworks) I had as a kid.** Swapping their limbs with different parts. It felt silly and simple back then, but looking back, I guess it’s **part of my core memory.**
 
 Honestly, **Star Wars without droids would feel empty.** They’re the ones keeping the whole messy galaxy running while everyone else is busy yelling or fighting.

@@ -1,3 +1,5 @@
+## Chapter 3 - Revenge of the Sith
+
 I thought the Jedi would be the center here. Lightsabers, lava, the fall of Anakin, the big stuff. But no, what really got me was how politics rotted everything from the inside.
 
 The Senate is done for by this point. Democracy didn’t get assassinated. It got eroded by convenience. Nobody stood up, nobody questioned enough, everyone just kept handing Palpatine one more “temporary” power, one more emergency clause. He didn’t even need to break a sweat. The Jedi thought they were too good for politics, the Senators thought they were too clever to lose, and meanwhile **a man in a robe rewrote the entire system in broad daylight.**
