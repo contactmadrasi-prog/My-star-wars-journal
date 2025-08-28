@@ -14,4 +14,4 @@ By the time the series reached the **Siege of Mandalore**, I wasn’t watching a
 
 **The Clone Wars didn’t just fill gaps. It turned Star Wars inside out.** It showed me tragedy in every laugh, every scar, every friendship doomed to die. I went in for space battles. **I came out with Umbara’s shadows, Fives’ dying breath, Ahsoka’s defiance, Rex’s loyalty, and Anakin’s destiny carved into stone.**
 
-[← Prev](Chapter%202.1%20-%20Clone%20Wars) | [Next →](Chapter%203%20-%20Revenge%20of%the%20Sith)
+[← Prev](Chapter%202.1%20-%20Clone%20Wars) | [Next →](Chapter%203%20-%20Revenge%20of%20the%20Sith)
