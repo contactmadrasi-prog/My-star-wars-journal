@@ -4,6 +4,8 @@ The ragtag crew of Rebels came out of nowhere and grabbed my heart. They started
 
 **Kanan Jarrus’s goodbye hit me harder than I expected.** Holding my phone in the dark, tears streaming, the way he regains eyesight to look at Hera? that moment was brutal and beautiful. It stuck with me long after the screen went dark.
 
-**Thrawn**, too, deserves mention. Not an obvious villain, but patient and sharp enough to earn a place in the galaxy’s rogues gallery. His calm menace added layers of tension that made every encounter feel like a chess match with serious stakes.
+**Thrawn**, too, deserves mention. Not an obvious villain, but patient and sharp enough to earn a place in the galaxy’s ever growing list of menaces. His calm menace added layers of tension that made every encounter feel like a chess match with serious stakes.
 
 Rebels had humor and warmth I didn’t see coming. **Sabine, Zeb, Ezra**, they weren’t perfect, they stumbled, but they tried. That raw imperfection made their victories feel real.
+
+[← Prev](Chapter%208%20-%20Rogue%20One) | [Next →](Chapter%2010%20-%20Original%20Trilogy)

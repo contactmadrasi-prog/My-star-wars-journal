@@ -25,3 +25,5 @@ Even in all the darkness, there was humor, dry, sarcastic, sharp. Small moments 
 **If Star Wars is myth and legend, Andor is humanity and sacrifice.** It does not shy away from the messiness of rebellion. If any part of Star Wars deserves a chapter all its own, it’s this. I cried as the Ghorman massacre unfolded and they sang because it wasn’t fantasy. It was real fear and hope tangled tight together.
 
 This is Star Wars stripped raw about what people risk, what they lose, and what they endure to keep hope alive. Once you hear that quiet scream beneath everything else, you can’t shut it out. Andor made me witness exactly that.
+
+[← Prev](Chapter%206%20-%20Solo) | [Next →](Chapter%208%20-%20Rogue%20One)

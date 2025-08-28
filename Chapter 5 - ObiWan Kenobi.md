@@ -7,4 +7,5 @@ But here’s the rub. The series felt like it was trying too hard to be epic and
 And yet the storytelling sometimes felt padded with sideline drama that could have been cut without losing anything. I kept waiting for the parts that would feel essential but they came in slow and scattered doses. It’s like Obi-Wan is carrying the whole story on his back, while the **script is still trying to figure out what it really wants to say about him.**
 
 At the end of the day, I was rooting for Obi-Wan, even when the series felt clunky. He’s more than the strict teacher from the prequels or the steady mentor in the original trilogy. **He is the heartbreak of a failed idealist staring down the ruin of everything he loved.** That’s a story worth telling. I just wish it had been told with more focus and fewer detours.
-***
+
+[← Prev](Chapter%204%20-%20The%20Bad%20Batch) | [Next →](Chapter%206%20-%20Solo)

@@ -4,4 +4,4 @@ GPT told me to finish watching this before Mandalorian season 3. I unwillingly d
 
 The series gave some answers but never quite sold me on its importance. **It was a detour that didn’t add much, at least from my perspective.**
 
-← Prev | Next →
+[← Prev](Chapter%2011%20-%20The%20Mandalorian) | [Next →](Chapter%2013%20-%20Ahsoka)

@@ -7,3 +7,5 @@ Kuiil was such a surprise. **The cranky little ‘I have spoken’** with his dr
 And let me not forget **Grogu aka baby yoda.** That tiny green ball of cuteness stole every scene with weird gurgling. The Mandalorian nailed mixing a little humor, heart, and some darker moments without it feeling cheesy.
 
 It’s a weird, fun ride in the franchise, a little strange and lovable all at once. Not something I would go back to watch like the clone wars, rebels, or Andor. But it was fun.
+
+[← Prev](Chapter%2010%20-%20Original%20Trilogy) | [Next →](Chapter%2012%20-%20Boba%20Fett)

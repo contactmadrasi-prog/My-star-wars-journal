@@ -12,4 +12,4 @@ Still, a few made it through. That matters. This show doesn’t hand out victori
 
 Kamino shows the rule that runs under this era: **when a system decides you’re finished, argument isn’t leverage; dependency is the trap.** The clones learn it the hardest way possible by surviving the proof.
 
-[← Prev](Chapter%203%20-%20Revenge%20of%20the%20Sith) | [Next →](Chapter%205%20-%20ObiWan %20Kenobi)
+[← Prev](Chapter%203%20-%20Revenge%20of%20the%20Sith) | [Next →](Chapter%205%20-%20ObiWan%20Kenobi)

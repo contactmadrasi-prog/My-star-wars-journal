@@ -11,3 +11,5 @@ That moment when **Palpatine** gets thrown down the shaft honestly made me roll 
 The rewatch of the trilogy felt messy. The story jumped around. The pacing was off. Characters I cared about sometimes felt like caricatures, and plots often repeated themselves. 
 
 **I had to remind myself this story was created decades before** Star Wars became the gritty, layered saga that has Andor that I resonate with now. The original trilogy is iconic for sure, foundational even, but compared to what came later, it sometimes **feels like a simpler fairy tale laid on top of a galaxy that’s a lot darker and more complicated.**
+
+[← Prev](Chapter%209%20-%20Rebels) | [Next →](Chapter%2011%20-%20The%20Mandalorian)
