@@ -13,3 +13,5 @@ And then Padme says it. **THE line. “So this is how liberty dies… with thund
 **And Order 66?** I knew it was coming, I even knew how it happens, but watching Jedi after Jedi shot down by soldiers they trusted still made me sick. The clones don’t become villains. They just execute their programming. Which is almost worse. Because **it’s not malice. It’s machinery.**
 
 By the end, Anakin isn’t a villain in a cool mask. He’s just the inevitable result of a system that failed every single person in it. **The politics, the corruption, the slow applause for tyranny. That’s the real story here.** The lightsabers and lava are just fireworks on the funeral pyre.
+
+[← Prev](Chapter%202.2%20-%20Clone%20Wars) | [Next →](Chapter%204%20-%20The%20Bad%20Batch)
