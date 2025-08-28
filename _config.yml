@@ -1,1 +1,5 @@
 theme: minima
+include:
+  - assets/style.css
+title: "My Star Wars Journal"
+description: "A detailed chronicle of Star Wars chapters and thoughts."
