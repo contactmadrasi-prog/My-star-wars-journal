@@ -1,4 +1,7 @@
-## Chapter 7 - Andor
+---
+title: "Chapter 7 - Andor"
+---
+
 
 Some shows sneak up on you, hit you so hard that you never see it coming. Andor did that to me. This wasn’t Star Wars with flashy lightsabers, endless CGI explosions, or melodramatic family betrayals. No, **this was dirty, human, political, and cut so damn deep** it made every other Star Wars moment before it feel like warm-up.
 

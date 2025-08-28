@@ -1,4 +1,6 @@
-## Chapter 11 - The Mandalorian
+---
+title: "Chapter 11 - The Mandalorian"
+---
 
 **Death Watch really threw me for a loop.** One minute they’re these crazy bloodthirsty warriors who live for war, the next they act like a cult that can’t take off their helmets. Like, seriously? All that shouting and baying for blood, and **suddenly no helmet removal is a thing?** That just didn’t sit right with me.
 

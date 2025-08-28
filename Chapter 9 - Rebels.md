@@ -1,4 +1,7 @@
-## Chapter 9 - Rebels
+---
+title: "Chapter 9 - Rebels"
+---
+
 
 I wasn’t planning on watching Star Wars Rebels. I thought it would be too cheesy or bright compared to Andor’s grit or Rogue One’s weight. I was just ticking another box on my chronological checklist. But oh, how wrong I was.
 

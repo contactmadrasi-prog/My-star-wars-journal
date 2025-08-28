@@ -5,3 +5,4 @@ plugins:
   - jekyll-remote-theme
 include:
   - assets/style.css
+show_downloads: false

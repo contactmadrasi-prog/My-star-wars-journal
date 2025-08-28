@@ -1,4 +1,7 @@
-## Chapter 4 - The Bad Batch
+---
+title: "Chapter 4 - The Bad Batch"
+---
+
 
 Omega annoyed me at first. Then she slipped past my defenses the way found family does quietly, stubbornly, and then all at once. She the one voice that refuses to treat survival as the ceiling.
 

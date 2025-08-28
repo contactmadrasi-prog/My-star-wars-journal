@@ -1,4 +1,7 @@
-## Chapter 6 - Solo
+---
+title: "Chapter 6 - Solo"
+---
+
 
 **I hated Solo.** Always have. Not just the movie, but the character too. And yes, that includes Harrison Ford’s Han Solo. The swagger, the cockiness, the **“too cool for school”** vibe, none of it ever landed for me. Watching the origin movie felt like a slog. I didn’t watch it because I was excited. I just sat through it because it was on my checklist. Had to tick the box.
 

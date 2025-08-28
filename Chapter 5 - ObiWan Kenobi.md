@@ -1,4 +1,7 @@
-## Chapter 5 - Obi-Wan Kenobi
+---
+title: "Chapter 5 - Obi Wan Kenobi"
+---
+
 
 Obi-Wan Kenobi was one of those watches where I had all the expectations and came away feeling... conflicted. **Ewan McGregor?** Absolutely perfect casting. The dude is Obi-Wan. You feel it immediately. **He wears those robes like they were made for him, carrying decades of loss, discipline, and quiet fury deep in his eyes. That’s Obi-Wan for me.**
 

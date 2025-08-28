@@ -1,4 +1,6 @@
-## Chapter 13 - Ahsoka
+---
+title: "Chapter 13 - Ahsoka"
+---
 
 Ahsoka has been my favorite since Clone Wars. The way she trusts Anakin, her gut instincts, her grit it’s always felt real and magnetic.
 

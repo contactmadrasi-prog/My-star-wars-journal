@@ -1,4 +1,7 @@
-## Chapter 10 - Original Trilogy
+---
+title: "Chapter 10 - Original Trilogy"
+---
+
 
 Watching the original trilogy last was like stepping into a familiar world with new eyes. **No longer just Luke’s hero journey, it felt like the messy ending to decades of rebellion, political collapse, and sacrifice.**
 

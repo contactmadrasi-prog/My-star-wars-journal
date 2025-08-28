@@ -1,4 +1,6 @@
-## The End
+---
+title: "The End"
+---
 
 Well, there are still three more on my checklist, but I’m hitting pause for now. Got a long holiday coming up, and **frankly, my brain needs a break from this galaxy far, far away.**
 

@@ -1,4 +1,7 @@
-## Chapter 8 - Rogue One
+---
+title: "Chapter 8 - Rogue One"
+---
+
 
 Rogue One landed hard. After the slow burn and quiet grit of Andor, **it arrived with rawness.** This movie stripped away everything and showed the personal cost of rebellion unlike anything else in Star Wars.
 

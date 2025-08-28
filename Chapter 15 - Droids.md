@@ -1,4 +1,6 @@
-## Chapter 15 - Droids
+---
+title: "Chapter 15 - Droids"
+---
 
 A final shoutout to all the droids. I still remember making pink astromechs move around on a desolate planet in an old **Star Wars game (Droidworks) I had as a kid.** Swapping their limbs with different parts. It felt silly and simple back then, but looking back, I guess it’s **part of my core memory.**
 

@@ -1,4 +1,7 @@
-## Chapter 12 - Boba Fett
+---
+title: "Chapter 12 - Boba Fett"
+---
+
 
 GPT told me to finish watching this before Mandalorian season 3. I unwillingly did. The Boba Fett series felt like a **side quest in a bigger story I wasn’t fully invested in**. I kept wondering why Boba Fett deserved a whole show. Back in Clone Wars, he was just a kid running around with bounty hunters. Nothing that really stuck.
 

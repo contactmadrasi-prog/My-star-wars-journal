@@ -1,4 +1,7 @@
-## Chapter 3 - Revenge of the Sith
+---
+title: "Chapter 3 - Revenge of the Sith"
+---
+
 
 I thought the Jedi would be the center here. Lightsabers, lava, the fall of Anakin, the big stuff. But no, what really got me was how politics rotted everything from the inside.
 
