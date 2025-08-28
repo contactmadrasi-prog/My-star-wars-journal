@@ -1,6 +1,6 @@
 My Star Wars Journal
 Two months. Fourteen chapters. Read in order or jump ahead.
-Chapter 0: Why I Watched and Why I Wrote This
+Why I Watched and Why I Wrote This
 Chapter 1: The Prequel
 Chapter 2.0 — The Bad Batch
 Chapter 2.1 — Clone Wars
