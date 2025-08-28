@@ -1,6 +1,5 @@
-# My Star Wars Journal
-
-Two months. Fourteen chapters. My Star Wars Binge Watch!
+**Two months. Fourteen chapters.
+My 2025 Binge Watch**
 
 - [Chapter 0 - Why I Watched and Why I Wrote This](Chapter%200%20-%20Why%20I%20Watched%20and%20Why%20I%20Wrote%20This)
 - [Chapter 1 - The Prequel](Chapter%201%20-%20The%20Prequel)

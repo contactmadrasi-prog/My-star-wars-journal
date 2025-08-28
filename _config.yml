@@ -1,5 +1,5 @@
 theme: minima
 include:
   - assets/style.css
-title: "My Star Wars Journal"
-description: "A detailed chronicle of Star Wars chapters and thoughts."
+  # My-star-wars-journal
+Two months, fourteen chapters. Started with Andor. Chrono order, candid takes. Hope, politics, clones, loss, from droids to clones and everything in between.
