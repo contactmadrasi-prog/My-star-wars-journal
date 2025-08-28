@@ -12,4 +12,4 @@ By the end of these first three films, you don’t just see a fall. **You see a 
 
 **That’s not space opera fluff. That’s history repeating itself, with better costumes.**
 ***
-[← Prev](Chapter%200%20–%20Why%20I%20Watched%20and%20Wrote%20This) | [Next →](Chapter%202.1%20–%20The%20Clone%20Wars)
+[← Prev](Chapter%200%20–%20Why%20I%20Watched%20and%20Wrote%20This) | [Next →](Chapter%202.1%20–%20Clone%20Wars)
