@@ -15,9 +15,6 @@ h2 {
 h3 {
   font-size: 1.5em;
 }
-a.btn, .page-description, .hero-description {
-  display: none !important;
-}
-.page-description, .hero-description {
+.page-description, .hero-description, a.btn[href*="github.com"] {
   display: none !important;
 }
