@@ -1,5 +1,7 @@
 title: "My 2025 Star Wars Journey"
 description: "Two months, fourteen chapters. Started with Andor. Chrono order, candid takes. Hope, politics, clones, loss, from droids to clones and everything in between."
-theme: minima
+remote_theme: pages-themes/cayman@v0.2.0
+plugins:
+  - jekyll-remote-theme
 include:
   - assets/style.css
