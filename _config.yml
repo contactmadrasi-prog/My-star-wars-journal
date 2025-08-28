@@ -10,3 +10,12 @@ include:
   - assets/style.css
 
 show_downloads: false
+@import "{{ site.theme }}";
+
+footer {
+  display: none !important;
+}
+
+.btn {
+  display: none !important;
+}
