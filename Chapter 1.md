@@ -1,4 +1,4 @@
-**The Prequels**
+**Chapter 1 - The Prequels**
 
 I didn’t expect to like the politics this much. Honestly thought it would be the most boring part, like filler between lightsaber duels. But no **the politics are the meat.** A Republic so bloated it can’t decide on a single issue without twenty committees and a thousand subclauses. **The Senate feels like every corporate meeting that could’ve been an email, except these emails decide wars.**
 
