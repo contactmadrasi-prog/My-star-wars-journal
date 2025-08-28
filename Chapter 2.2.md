@@ -1,3 +1,5 @@
+**Chapter 2.2 – Clone Wars**
+
 **And Ahsoka, oh man.** At first, she grated on me. A child soldier thrown into a war zone, saddled with Anakin like some **cosmic babysitting experiment**. But she grew. She really grew. She became the compass of the entire saga. Every time she questioned the Jedi, I was nodding at the screen. **And when she finally walked away from the Order, it gutted me more than Anakin’s fall ever did.** His story is tragedy written in neon. Hers is quiet, earned, and scathing. **She didn’t betray anyone. The Jedi betrayed her.**
 
 **And Anakin here,** he’s not the stiff, brooding figure that makes my skin crawl like it had sand on it. He’s alive. Reckless, funny, painfully human. I finally understood why Rex would follow him, why Ahsoka would risk everything for him, why Obi-Wan’s quiet disappointment cut so deep. Which makes **his fall into Vader feel like a guillotine dropping in slow motion.**
