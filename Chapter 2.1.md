@@ -1,3 +1,5 @@
+**Chapter 2.1 - Clone Wars**
+
 The movies hinted at clones. This series made me watch them bleed.
 
 The first time I saw The Clone Wars, **I thought I’d just hear blasters in the background while folding laundry.** Instead, I was staring at men in identical helmets who refused to stay identical. They had names. Rivalries. Tattoos and scars and inside jokes. And that’s where the knife twisted. Because once they had faces, once they laughed, every battlefield became unbearable.
