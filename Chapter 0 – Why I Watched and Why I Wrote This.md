@@ -10,3 +10,5 @@ Anyway, the real reason I went full marathon mode? **GPT gave me a cute checklis
 Never felt I should share this with the outside world but I decided to **because I really enjoyed the past couple of months. And** well, I was very happy to see some people really connect with the prequel post from politics to the UN analogy. **One even shared a youtube video that made me go, yes! That’s it.** I felt I should do the whole journey. I like it when someone relates to my incoherent, happy rants.
 
 There are four more months to go. Might not have broken a glass ceiling at work or done anything majorly significant, oh! I did finish buy a home. Yay me. Now, I have a huge debt. **Well, 2025 will still be the year of Star Wars.** I might laugh at this absurdly long post years from now, not believing I had the time to write it when the office holds me hostage 14 hours a day and 35 kilometers of commute one way. But I think **I'd like a few witnesses who share my thoughts about a franchise I'm hoping a few love too and agree and disagree with me.**
+
+[Next →](Chapter%201%20—%20The%20Prequel.md)
