@@ -1,26 +1,4 @@
 
-tags:: #starwars #journal #andor #chronological #longread
-status:: publish
-alias:: Star Wars Chronological Journal
-## **Quick-links index**
-[[Chapter 1 – The Prequel]]
-[[Chapter 2.1 – Clone Wars]]
-[[Chapter 2.2 – Clone Wars]]
-[[Chapter 3 – Revenge of the Sith]]
-[[Chapter 4 – The Bad Batch]]
-[[Chapter 5 – Obi-Wan Kenobi]]
-[[Chapter 6 – Solo]]
-[[Chapter 7 – Andor]]
-[[Chapter 8 – Rogue One]]
-[[Chapter 9 – Rebels]]
-[[Chapter 10 – Original Trilogy]]
-[[Chapter 11 – The Mandalorian]]
-[[Chapter 12 – Boba Fett]]
-[[Chapter 13 – Ahsoka]]
-[[Chapter 14 – Skeleton Crew]]
-[[Chapter 15 – Droids]]
-[[The end]]
-
 **It all started with Andor.** Two seasons in, as I watched the Ghormans’ sing and I had tears streaming down my face, I realized **I needed the whole damn franchise.** Every rise, every fall, every quiet rebellion, every gut punch, every tear, every “oh no, they did not just do that” moment. And I needed it in order.
 
 Part of it was nostalgia. As a kid I had **this PC game,** **The Gungan Frontier. You built ecosystems, helped the Gungans thrive**, tinkered with robots, and somehow felt like the all-powerful caretaker of a tiny ridiculous planet. Quiet, weird, simple but it made a galaxy feel alive. Years later, well here I am rambling on the internet.
