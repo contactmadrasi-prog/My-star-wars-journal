@@ -1,3 +1,4 @@
+**Why I Watched and Why I Wrote This**
 
 **It all started with Andor.** Two seasons in, as I watched the Ghormans’ sing and I had tears streaming down my face, I realized **I needed the whole damn franchise.** Every rise, every fall, every quiet rebellion, every gut punch, every tear, every “oh no, they did not just do that” moment. And I needed it in order.
 
