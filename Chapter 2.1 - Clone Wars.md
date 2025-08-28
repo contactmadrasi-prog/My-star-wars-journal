@@ -12,4 +12,4 @@ Anyway, back to clones and clone wars. **Umbara broke me. That whole arc was suf
 
 The clones were supposed to be background noise. But now they’re the only thing I hear.
 
-***
+[← Prev](Chapter%201%20-%20The%20Prequels) | [Next →](Chapter%202.2%20-%20Clone%20Wars)

@@ -13,4 +13,5 @@
 By the time the series reached the **Siege of Mandalore**, I wasn’t watching a cartoon anymore. I was watching doom step into the room. Maul screaming truths about Sidious while everyone dismissed him. Ahsoka trying to hold everything together as Rex fought against the chip clawing at his brain. Order 66 cracking the galaxy in half. **And Ahsoka, standing in silence over the graves of clones she called brothers, leaving Anakin’s saber in the dirt.** That image of Vader finding it later is one I can’t scrub out of my head.
 
 **The Clone Wars didn’t just fill gaps. It turned Star Wars inside out.** It showed me tragedy in every laugh, every scar, every friendship doomed to die. I went in for space battles. **I came out with Umbara’s shadows, Fives’ dying breath, Ahsoka’s defiance, Rex’s loyalty, and Anakin’s destiny carved into stone.**
-***
+
+[← Prev](Chapter%202.1%20-%20Clone%20Wars) | [Next →](Chapter%203%20-%20Revenge%20of%the%20Sith)
