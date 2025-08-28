@@ -15,6 +15,6 @@ h2 {
 h3 {
   font-size: 1.5em;
 }
-.subtitle, .lead {
+.subtitle, .lead, .page-description {
   display: none;
 }

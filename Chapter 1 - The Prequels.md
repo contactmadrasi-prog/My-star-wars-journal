@@ -2,7 +2,6 @@
 title: "Chapter 1 - The Prequels"
 ---
 
-
 I didn’t expect to like the politics this much. Honestly thought it would be the most boring part, like filler between lightsaber duels. But no **the politics are the meat.** A Republic so bloated it can’t decide on a single issue without twenty committees and a thousand subclauses. **The Senate feels like every corporate meeting that could’ve been an email, except these emails decide wars.**
 
 And then there’s **Palpatine**. Always in the background, smiling, waiting. Never overreaching. Just letting incompetence do his work for him. Watching him **manipulate systems so patiently** was chilling. You almost want to admire him not for the evil, but for the sheer mastery of process. He never pushes too hard; **he just knows people will hand him the keys out of convenience.**
