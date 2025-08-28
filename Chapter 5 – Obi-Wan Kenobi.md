@@ -1,0 +1,10 @@
+Obi-Wan Kenobi was one of those watches where I had all the expectations and came away feeling... conflicted. **Ewan McGregor?** Absolutely perfect casting. The dude is Obi-Wan. You feel it immediately. **He wears those robes like they were made for him, carrying decades of loss, discipline, and quiet fury deep in his eyes. That’s Obi-Wan for me.**
+
+But here’s the rub. The series felt like it was trying too hard to be epic and meaningful, but kept getting bogged down in the discomfort of its own storytelling choices. **The Princess Leia subplot, although charming, felt like a forced fit.** Why on earth was Leia hiding under Obi-Wan’s roof? It stretched the timeline in weird ways and added tension where none was needed. Instead of feeling like I was learning more about Obi-Wan’s world, I was stuck watching a side quest that never really clicked into place.
+
+**The series shoves us into these big, slow moments missing the pulse of what made Obi-Wan a legend.** The battles? Decent, but too few and far between. The quiet moments? Good, very good. Especially when Obi-Wan is faced with his own failures and the bleak way the galaxy is falling apart around him. That’s the Obi-Wan I wanted to see. The one weighed down by guilt, exhaustion, and a hope he knows might be foolish.
+
+And yet the storytelling sometimes felt padded with sideline drama that could have been cut without losing anything. I kept waiting for the parts that would feel essential but they came in slow and scattered doses. It’s like Obi-Wan is carrying the whole story on his back, while the **script is still trying to figure out what it really wants to say about him.**
+
+At the end of the day, I was rooting for Obi-Wan, even when the series felt clunky. He’s more than the strict teacher from the prequels or the steady mentor in the original trilogy. **He is the heartbreak of a failed idealist staring down the ruin of everything he loved.** That’s a story worth telling. I just wish it had been told with more focus and fewer detours.
+***
