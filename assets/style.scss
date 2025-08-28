@@ -1,0 +1,17 @@
+---
+---
+
+@import "{{ site.theme }}";
+
+footer.site-footer {
+  display: none !important;
+}
+
+a.btn[href*="github.com"] {
+  display: none !important;
+}
+
+.page-description,
+.hero-description {
+  display: none !important;
+}
